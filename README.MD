@@ -1,1 +1,4 @@
-#belajar git
+#belajar gitgit sdhfksjb
+fskjdgfkjbskhdgf jsgdhfghjg
+jksbfkasdgkfdsg
+jzbdkjfhksjbkdjf
